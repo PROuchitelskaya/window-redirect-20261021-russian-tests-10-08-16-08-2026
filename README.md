@@ -1,2 +1,0 @@
-# window-redirect-20261021-russian-tests-10-08-16-08-2026
-PRO-CABINET-REDIRECT-20261021
